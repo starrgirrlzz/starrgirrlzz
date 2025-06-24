@@ -6,8 +6,8 @@ feel free to c+h or int ! also feel free to add me !
 star . elliot . sixer . or whoever cos i'm in .     
 dec. 24 .         
 she/he/they/it pronouns .
-           
-  ![guestnoob.jpg](https://github.com/user-attachments/assets/cf233d7d-f229-42ad-8cff-95e74c22401a)
+
+![guestnoob](https://github.com/user-attachments/assets/8f4c1974-1f70-4b79-aab3-e0f7ad72d0dc)
 
 fandoms:       
 forsaken , sonic , mouthwashing , fnaf , marvel , dc , harry potter , star wars , resident evil , scream , supernatural , mlp , horror movies , basically any scary game .
