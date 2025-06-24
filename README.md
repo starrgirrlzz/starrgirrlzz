@@ -7,7 +7,7 @@ star . elliot . sixer . or whoever cos i'm in .
 dec. 24 .         
 she/he/they/it pronouns .
            
-  ![rougeknux](https://github.com/user-attachments/assets/cf233d7d-f229-42ad-8cff-95e74c22401a)
+  ![guestnoob.jpg](https://github.com/user-attachments/assets/cf233d7d-f229-42ad-8cff-95e74c22401a)
 
 fandoms:       
 forsaken , sonic , mouthwashing , fnaf , marvel , dc , harry potter , star wars , resident evil , scream , supernatural , mlp , horror movies , basically any scary game .
