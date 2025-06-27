@@ -1,7 +1,7 @@
 
 ☆ ︶︶︶  ౿‧₊ᵎ🍒✮ 𞥊   ︶︶︶ ☆
 
-feel free to c+h or int ! also feel free to add me !    
+It should be common sense, but do not go around thinking you can copy or get inspo for my ponies. I've had people copying my ponies recently, so at this point, no inspiration or copying my ponies. I have genuinely had enough. If you see a pony that looks like one of mine, but doesn't have the github connected to them, please let them know about this. It is so pathetic that people do this, and I'm sick of it. 
      
 star . elliot . sixer . or whoever cos i'm in .     
 dec. 24 .         
