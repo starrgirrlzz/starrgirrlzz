@@ -1,10 +1,10 @@
 
 ☆ ︶︶︶  ౿‧₊ᵎ🍒✮ 𞥊   ︶︶︶ ☆
 
-It should be common sense, but do not go around thinking you can copy or get inspo for my ponies. I've had people copying my ponies recently, so at this point, no inspiration or copying my ponies. I have genuinely had enough. If you see a pony that looks like one of mine, but doesn't have the github connected to them, please let them know about this. It is so pathetic that people do this, and I'm sick of it. 
+Do not go around copying or getting inspo for my ponies. If you see a pony that looks like one of mine, but doesn't have the github connected to them, please let them know about this. 
      
-star . elliot . sixer . or whoever cos i'm in .     
-dec. 24 .         
+star . or whoever cos i'm in .     
+dec. 24 . 18 yo      
 she/he/they/it pronouns .
 
 ![guestnoob](https://github.com/user-attachments/assets/8f4c1974-1f70-4b79-aab3-e0f7ad72d0dc)
