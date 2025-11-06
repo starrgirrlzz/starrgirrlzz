@@ -7,7 +7,7 @@ star . brad . or whoever cos i'm in .
 dec. 24 . 18 yo      
 she/he/they/it pronouns .
 
-![noelle](IMG_1765.jpeg)
+![griefer](IMG_1808.jpeg)
 
 fandoms:       
 blocktales , forsaken , sonic , mouthwashing , fnaf , marvel , dc , harry potter , star wars , resident evil , scream , supernatural , mlp , horror movies , basically any scary game .
