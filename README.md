@@ -1,5 +1,5 @@
 
-☆ ︶︶︶  ౿‧₊ᵎ🍒✮ 𞥊   ︶︶︶ ☆
+☆ ︶︶︶  ౿‧₊ᵎ🥀✮ 𞥊   ︶︶︶ ☆
 
 Do not go around copying or getting inspo for my ponies. If you see a pony that looks like one of mine, but doesn't have the github connected to them, please let them know about this. 
      
@@ -18,4 +18,4 @@ proshippers , sonadow skins , jimmy/jimcurly/jimxanya likers , 15- , normal dni 
 favs :     
 toxichero , griefer , guest 666 , guest 666 x noob , elliot , mafioso , paycheck , pizzaburger , pizzadebt , doublefedora , noli and n7 , rouge , amy , shadow , sonic , anya , curly , daisuke , rarity , fluttershy , pinkie pie , draco , batman , punchline , spiderman , miles morales , gwen stacy , curlanya ( not in canon , in aus ) sonamy , shadamy , rougexknux , rougexshadow , dean winchester , sam winchester , jensen ackles , drew starkey , jeremy allen white , etc . . .    
         
-︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+︶︶︶ ⊹ ︶︶︶ ୨🥀୧ ︶︶︶ ⊹ ︶︶︶
