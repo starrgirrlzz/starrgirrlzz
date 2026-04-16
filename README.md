@@ -1,6 +1,7 @@
-@starrgirrlzz  :  🦴
+@chosoblood  :  🦴
 
-![sukuna2](https://github.com/user-attachments/assets/497f53d3-b87b-40e5-a057-f038b2ada4b4)
+<img width="540" height="304" alt="choso1" src="https://github.com/user-attachments/assets/7ee69506-867a-4ba2-abd7-475f69cf25f6" />
+
 
 ♫  ✦ ݁˖  love is worthless.
 
